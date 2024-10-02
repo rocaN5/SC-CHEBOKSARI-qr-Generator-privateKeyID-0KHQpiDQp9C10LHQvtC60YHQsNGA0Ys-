@@ -1,0 +1,1 @@
+# SC-CHEBOKSARI-qr-Generator-privateKeyID-0KHQpiDQp9C10LHQvtC60YHQsNGA0Ys-
